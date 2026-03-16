@@ -11,7 +11,7 @@ summary: >
   della propaganda sul numero di morti provocati dall’ultimo durissimo colpo
   assestato dagli aggrediti agli aggressori.
 ---
-![](/uploads/schermata-2023-01-13-alle-22.25.02.png)
+![](https://www.beyondgeopolitics.com/wp-content/uploads/Schermata-2023-01-13-alle-22.25.02.png)
 
 
 
